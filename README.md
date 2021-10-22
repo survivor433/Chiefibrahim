@@ -1,0 +1,2 @@
+# Chiefibrahim
+I'm chief Ibrahim helping people in terms of their problems like, 1. Money 2. Lotto numbers 3. Traveling to abroad 4. Schooling 5. Marriage  0551965704/+233551965704 6. Instant money 7. Work problem 8. Business improvement 9. Enemies protection 10. For girls 11. Do as I say 12. Court cases 13. Sicknesses 14. Love binding 15. Infertility 16. Blindness 17. Instant money 18. Visa problem 19. Church power  20.Gold problem And  many  you can call me or whatsapp me on (0551965704/+233551965704) No Human Blood Involved ❌❌❌
